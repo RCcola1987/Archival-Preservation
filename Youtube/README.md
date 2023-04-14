@@ -1,0 +1,52 @@
+# This is a list of Youtube Channels in one of 3 states of preservation!
+- Completed
+- In Progress
+- Not Started
+
+The Youtube Channels listed here will be avaiable on my Archive.org page.
+
+## The following is a list of Youtube Channels being perserved in their various states.
+- HonestOutlawReviews - https://www.youtube.com/@HonestOutlawReviews/videos - Completed
+- AdministrativeResults - https://www.youtube.com/@AdministrativeResults/videos - Completed
+- 22plinkster - https://www.youtube.com/@22plinkster/videos - Completed
+- TacticoolGirlfriend - https://www.youtube.com/@TacticoolGirlfriend/videos - Completed
+- TFBTVShowTime - https://www.youtube.com/@TFBTVShowTime/videos - Completed
+- tfbtv - https://www.youtube.com/@tfbtv/videos - Completed
+- gowilsoncombat - https://www.youtube.com/@gowilsoncombat/videos - Completed
+- TREXARMS - https://www.youtube.com/@TREXARMS/videos - Completed
+- LuckyGunner - https://www.youtube.com/@LuckyGunner/videos - Completed
+- milspec_mojo1904 - https://www.youtube.com/@milspec_mojo1904/videos - Completed
+- armedandstyled2117 - https://www.youtube.com/@armedandstyled2117/videos - Completed
+- PaulHarrell - https://www.youtube.com/@PaulHarrell/videos - Completed
+- Iraqveteran8888 - https://www.youtube.com/@Iraqveteran8888/videos - Completed
+- ForgottenWeapons - https://www.youtube.com/@ForgottenWeapons/videos - Completed
+- InrangeTv - https://www.youtube.com/@InrangeTv/videos - Completed
+- Candrsenal - https://www.youtube.com/@Candrsenal/videos - Completed
+- Hoplopfheil - https://www.youtube.com/@Hoplopfheil/videos - Completed
+- PolenarTactical - https://www.youtube.com/@PolenarTactical/videos - Completed
+- AutumnsArmory - https://www.youtube.com/@AutumnsArmory/videos - Completed
+- WHOTEEWHO - https://www.youtube.com/@WHOTEEWHO/videos - Completed
+- marknovak8255 - https://www.youtube.com/@marknovak8255/videos - Completed
+- PrepMedic - https://www.youtube.com/@PrepMedic/videos - Completed
+- midwayusa - https://www.youtube.com/@midwayusa/videos - Completed
+- BrassFacts - https://www.youtube.com/@BrassFacts/videos - Completed
+- sootch00 - https://www.youtube.com/@sootch00/videos - Completed
+- BWEFirearms - https://www.youtube.com/@BWEFirearms/videos - Completed
+- ClassicFirearms - https://www.youtube.com/@ClassicFirearms/videos - Completed
+- carnikconarchive3727 - https://www.youtube.com/@carnikconarchive3727/videos - Completed
+- 9HoleReviews - https://www.youtube.com/@9HoleReviews/videos - Completed
+- SmallArmsSolutions - https://www.youtube.com/@SmallArmsSolutions/videos - Completed
+- AkOperatorsUnion - https://www.youtube.com/@AkOperatorsUnion/videos - Completed
+- ColionNoir - https://www.youtube.com/@ColionNoir/videos - Completed
+- hickok45 - https://www.youtube.com/@hickok45/videos - Completed
+- GarandThumb - https://www.youtube.com/@GarandThumb/videos - Completed
+- BrandonHerrera - https://www.youtube.com/@BrandonHerrera/videos - Completed
+- KentuckyBallistics - https://www.youtube.com/@KentuckyBallistics/videos - Completed
+- EdwinSarkissian - https://www.youtube.com/@EdwinSarkissian/videos - Completed
+- FPSRussia - https://www.youtube.com/@FPSRussia/videos - Completed
+- VintageWarfare - https://www.youtube.com/@VintageWarfare/videos - Completed
+- DemolitionRanch - https://www.youtube.com/@DemolitionRanch/videos - Completed
+- Mrgunsngear - https://www.youtube.com/@Mrgunsngear/videos - Completed
+- IvanPrintsGuns - https://www.youtube.com/@IvanPrintsGuns/videos - Completed
+- SensiblePrepper - https://www.youtube.com/@SensiblePrepper/videos - Completed
+- wranglerstar - https://www.youtube.com/@wranglerstar/videos - Completed
